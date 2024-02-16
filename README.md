@@ -14,8 +14,8 @@ buy script betting - bet script<p><p><p>
 
 ![Uploading magic777.png…]()<p><p><p>
 
-Please Buy script Casino And bettin Following My website & channel Telegram :><p>
+Please Buy script Casino And bettin Following My website & channel Telegram <p>
 
-WebSite : https://codecanyon.site/><p>
-Telegram Support: https://t.me/coding_sup><p>
-Telegram channel: https://t.me/casino_scripte ><p>
+WebSite : https://codecanyon.site <p>
+Telegram Support: https://t.me/coding_sup <p>
+Telegram channel: https://t.me/casino_scripte <p>
